@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. Martin Slovák
 2. Sára Guziová
-3.
+3. Veronika Horňáková
 4. Matúš Drahovský
 
