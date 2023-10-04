@@ -12,8 +12,8 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1. 
+1. Martin Slovák
 2. Sára Guziová
 3.
-4.
+4. Matúš Drahovský
 
